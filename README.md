@@ -34,6 +34,12 @@ My vision with Bunique is to create a warm and creative community where handmade
 
 Thank you for supporting a small handmade startup and being part of this journey. Every like, share, order, and kind word means a lot. 
 
+## Connect With Us
+
+Instagram: @bunique.in
+
+Email: buniquestores@gmail.com
+
 ---
 
 Made with love, creativity, and lots of yarn.
