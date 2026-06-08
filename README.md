@@ -20,12 +20,6 @@ Every crochet piece is handmade with patience, creativity, and attention to deta
 * Accessories
 * Home decor items
 
-##  Brand Identity
-
-### Tagline
-
-**“Yarn to Yaari”**
-
 ##  Vision
 
 My vision with Bunique is to create a warm and creative community where handmade products feel emotional, memorable, and special. This is just the beginning, and I hope to grow Bunique into a brand people genuinely connect with.
